@@ -24,5 +24,5 @@ z
 z
 ผ
 zv
-.j
+.jkkk
 ใg
